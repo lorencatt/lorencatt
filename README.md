@@ -12,6 +12,6 @@
 
 00001105935309sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/kIDfnd59vip.gif)
+![](https://media1.tenor.com/m/evOjo3SiS1sAAAAd/cat-blink.gif)
 
 **é isso, beijinhos 😽💕 !**
