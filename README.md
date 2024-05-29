@@ -6,7 +6,7 @@
 
 - Estou me desenvolvendo na linguagem JavaScript 🐱‍💻
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
-- projetos estes que tive que fazer ou ficaria sem nota 😿
+- (projetos estes que tive que fazer ou ficaria sem nota 😿)
 
 ## Você pode entrar em contato comigo 💌 !
 
